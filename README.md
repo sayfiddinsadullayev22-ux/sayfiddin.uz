@@ -1,1 +1,1 @@
-# sayfiddin.uz
+# Sayfiddin.uz
